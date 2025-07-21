@@ -3,7 +3,7 @@
 🧠 Computer Science student at LNM IIT, Jaipur </br>
 👀 Learning DSA and AI-ML cuz why not? </br>
 💖 Loves to edit, design and create something be it videos or mouth-watering dishes for पापी पेट | </br>
-🎥 Works at [Afterink Studio](https://www.instagram.com/afterinkstudio/) for my love of motion design and video editing  </br>
+🎥 Works at [Afterink Studio](https://www.instagram.com/afterinkstudio/) for my love of Cinematography, motion design and video editing  </br>
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/myselfkgr) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/this-is-kgr) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/kgr.in.motion) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/myselfkgr) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:krishnagopalrathi007@gmail.com) 
